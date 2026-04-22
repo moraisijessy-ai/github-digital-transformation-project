@@ -10,7 +10,7 @@ Director of IT
 
 ## Project Manager
 
-[Your Name]
+JESSY MORAIS
 
 ## Scope
 
